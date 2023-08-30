@@ -14,8 +14,3 @@ But advertising and analytics may appear in the future, so the privacy policy wi
 Contact me
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me. alser7543@gmail.com
-                                                                                                                                                                            
-
-When you install and use “Haont” mobile applications, we can collect and process some of your data for different legitimate purposes.
-
-You will find below explanations regarding the reasons why we may collect data.
